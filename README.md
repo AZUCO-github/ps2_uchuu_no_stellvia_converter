@@ -1,4 +1,5 @@
 # PS2 宇宙のステルヴィア コンバータ
+https://azuco.sakura.ne.jp/column/ag_ps2stellvia/  
 rev.2005/11/14  
   
 使い方  
